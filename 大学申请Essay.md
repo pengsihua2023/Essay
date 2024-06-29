@@ -1,4 +1,3 @@
-![image](https://github.com/pengsihua2023/Essay/assets/131550223/18ea6d5f-2d05-444f-94df-1c24f4f1fbad)  
 
 # 第一种类型 激情 （Passion）
 在前言中，我们告诉你要在文章中注入激情。但仅仅列出你做过的事情来证明你对激情的承诺是不够的。关于激情的文章应该遵循一条经得起考验的写作格言：展示，不要告诉。在这些文章中成功的关键是确定一个特定的轶事，展示你对所做事情的无限激情。    
@@ -357,3 +356,7 @@ Razi的文章充满了各种事件，他巧妙地利用这些事件展现了自�
 
 ### 第二篇
 ### Tiana Menon 
+
+
+
+![image](https://github.com/pengsihua2023/Essay/assets/131550223/18ea6d5f-2d05-444f-94df-1c24f4f1fbad)    
