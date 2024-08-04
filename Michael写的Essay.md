@@ -20,7 +20,7 @@ As I stand on the threshold of higher education, I carry not just the past but a
 
 当我站在高等教育的门槛上时，我不仅承载着过去的经历，也从中汲取了力量。我曾经在逆境中沉默的声音，现在充满了决心和目标。在多样化元素的美丽的武装下，我已经准备好写下一个反抗困难的未来。在这个未来中，教育不仅仅是逃离的手段，更是一种工具，可以为我、为我的社区以及更广阔的世界带来改变。
 
-ChatGPT修改版：
+### ChatGPT修改版：  
 "Hey, where are you guys going? It's been a while since you last paid the protection fee, hasn't it?" In the narrow alleyways, where sewage runs along the edges of the road, someone shouted as my friends and I walked home from an internet cafe. I turned around to see a group of teenagers, all about high school age, with tattoos on their arms and some gripping blades. Knowing their reputation, I swallowed nervously and reluctantly handed over the ten dollars I had saved for dinner.
 
 Growing up in rural China, scenes like this were all too common. With parents working long hours, many children were left unsupervised and fell into the wrong path, with some not even attending high school. For me, it was clear that the only way to escape this environment and rise above was through education. My chances were slim, but they weren't zero.
