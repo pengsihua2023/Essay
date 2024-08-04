@@ -177,63 +177,7 @@ Angela写了一篇勇敢的文章，讲述了她与饮食失调的个人斗争�
 
 ——克莱尔·李
 
-## 习作一
 
-### 题目：在新疆的挑战与成长
-
-我从未想到，在中国新疆的旅行会如此深刻地影响我。这个广袤而神秘的地方，以其独特的地理环境和文化风情吸引着我。然而，旅途中的种种挑战也让我深刻地认识到自己应对困境的能力。
-
-初到新疆，第一件让我措手不及的就是气候。这里的早晚温差极大，早晨还在为寒冷发抖，中午却又被灼热的阳光晒得汗流浃背。每次出门前，我都要仔细琢磨该穿多少衣服，才能在不同的时间段保持舒适。然而，这种反复的气候变化让我感到疲惫，也让我意识到，旅途中的每一刻都可能是对适应能力的考验。
-
-不仅是气候，新疆的饮食习惯也让我一时难以适应。这里的食物多以羊肉和面食为主，味道浓烈而独特。尽管我尝试着去品味这些新奇的食物，但胃却并不买账。有一天晚上，我在凌晨4点被饿醒，房间里一片寂静，只有我一个人辗转反侧。饥饿和孤独让我第一次真正感受到，身处异地时，适应当地文化和生活方式的重要性。
-
-更让我难忘的是一次和旅游团的失散经历。那天，我们在乌鲁木齐的国际大巴扎游览，这个充满异域风情的市场让人目不暇接。我沉浸在琳琅满目的手工艺品和香料的世界里，直到抬头发现，原本在身边的团友们已经不见踪影。我突然意识到自己被人群淹没了，心中顿时涌起一股不安的情绪。那一刻，我深深体会到了“茫然”这个词的含义。在异国他乡，语言的不通和环境的陌生让我感到无助。然而，我努力让自己冷静下来，通过向当地人询问方向，终于重新找到了团队。
-
-最后一天，在克拉玛依，我迎来了旅途中最大的挑战。我们准备坐飞机返回，但由于误判了出发时间，我和团队失去了联系。我独自一人在机场的候机厅，看着即将起飞的航班，感受到一种无法形容的焦虑和无力。那一刻，我意识到，即便事先计划得再周密，也会有意外发生，旅行就是这样充满不确定性。我最终不得不改签航班，并重新规划回程。
-
-这次新疆之行让我学到了很多。面对气候的变化，我学会了如何调整自己的节奏；在适应饮食的过程中，我学会了包容和接受不同的文化；而在与团队失散和错过航班的经历中，我学会了冷静处理突发状况，并在困境中寻求解决办法。这次旅行不仅丰富了我的阅历，也让我明白了在面对未知和挑战时，适应力和应变能力是多么的重要。
-
-回顾这段旅程，我不再只是记得新疆壮丽的风景和丰富的文化，更重要的是，我认识到自己在这段旅程中变得更加坚强和成熟。每一次挑战和困境，都让我更加清楚地认识到自己的潜力和能力。在未来的旅途中，无论面对怎样的困难，我都将以更加开放和坚毅的心态去迎接。
-
-### Title: Challenges and Growth in Xinjiang
-
-I never expected that my trip to Xinjiang, China, would have such a profound impact on me. This vast and mysterious region, with its unique geography and cultural charm, fascinated me. However, the challenges I encountered during the journey also made me deeply aware of my ability to cope with difficulties.
-
-The first thing that caught me off guard upon arriving in Xinjiang was the climate. The temperature fluctuations between morning and evening were extreme—shivering in the cold early in the morning and sweating under the scorching midday sun. Each time before heading out, I had to carefully consider how many layers to wear to stay comfortable throughout the day. This constant change in weather left me exhausted and made me realize that every moment of the journey could be a test of adaptability.
-
-It wasn't just the climate; the local cuisine also took some getting used to. Xinjiang’s food, rich in mutton and noodles with strong, distinctive flavors, was far from what I was accustomed to. Despite my efforts to appreciate these new tastes, my stomach disagreed. One night, I woke up at 4 a.m., feeling ravenously hungry. The room was silent, and I was alone, tossing and turning. Hunger and solitude made me truly understand the importance of adapting to local customs and lifestyles when in a foreign land.
-
-One of the most unforgettable experiences was getting separated from the tour group. We were exploring the International Grand Bazaar in Urumqi, a market filled with exotic goods and spices. I was completely absorbed in the vibrant array of handcrafted items when I looked up and realized my group had vanished. Suddenly, a sense of unease overwhelmed me as I found myself lost in the crowd. At that moment, I truly grasped the meaning of the word "bewildered." In a foreign country, with unfamiliar surroundings and language barriers, I felt helpless. However, I forced myself to stay calm and eventually found my way back to the group by asking locals for directions.
-
-The final day in Karamay presented the biggest challenge of the trip. We were preparing to fly back, but due to a misjudgment of the departure time, I lost contact with the group. Alone in the airport's waiting area, watching the plane I was supposed to be on prepare for takeoff, I felt an indescribable anxiety and helplessness. At that moment, I realized that no matter how meticulously plans are made, unexpected events can still occur. Travel is full of uncertainties. I ended up having to reschedule my flight and replan my return journey.
-
-This journey to Xinjiang taught me a lot. Facing the changing climate, I learned how to adjust my pace; in adapting to the food, I learned to embrace and accept different cultures; and through the experiences of getting separated from the group and missing the flight, I learned to remain calm in the face of unexpected situations and to seek solutions in times of difficulty. This trip not only enriched my experiences but also made me realize the importance of adaptability and resilience when facing the unknown and challenging situations.
-
-Looking back on this journey, what stays with me is not just the magnificent landscapes and rich culture of Xinjiang, but more importantly, how I became stronger and more mature through this journey. Each challenge and hardship revealed more of my potential and capabilities. In future travels, no matter what difficulties I may face, I will approach them with a more open and determined mindset.  
-## 习作二
-### 题目：在新疆的成长与自我发现
-
-新疆，这片辽阔而神秘的土地，以其独特的自然风光和多样的文化魅力吸引着我。然而，当我踏上这片土地时，才意识到这次旅程不仅是对风景的欣赏，更是一次自我挑战与成长的历程。
-
-新疆的气候变化让我措手不及。早晨的寒冷和中午的炽热形成了强烈的对比，这种温差让我意识到，真正的旅行不仅是眼睛的享受，更是心灵的磨砺。每一天的气候变化，都让我重新审视自己的适应能力和应变能力。
-
-旅程中最让我难忘的是一次与旅游团失散的经历。在乌鲁木齐的国际大巴扎，我沉浸在琳琅满目的手工艺品中，却不知不觉与团队失去了联系。陌生的环境和语言障碍让我一度感到无助和恐慌，但我努力镇定下来，通过向当地人寻求帮助，最终找回了团队。这次经历让我明白，冷静与主动应对是面对突发状况时最有效的解决之道。
-
-此外，与旅伴的同住也成了一大挑战。他响亮的鼾声让我每晚难以入睡，这让我意识到，在旅途中学会与环境和他人相处同样重要。经过几天的挣扎，我尝试了各种方法，最终找到了一些让自己休息的方法。
-
-在克拉玛依，我错过了航班。这让我深刻体会到旅行中的不确定性，以及应对意外的必要性。尽管这次旅行充满挑战，但它让我学会了如何在困境中寻找解决办法，并从中成长。
-
-回顾这次新疆之行，我不仅欣赏到了美丽的风景，更在旅途中经历了深刻的自我发现。每一次的挑战和困境，都让我变得更加坚韧和自信。无论未来的旅程多么艰难，我都将以更加开放的心态迎接每一个新的挑战。
-
-### Title: Growth and Self-Discovery in Xinjiang
-
-Xinjiang, with its vast landscapes and rich cultural heritage, had always captivated me. However, when I finally set foot on this land, I realized that this journey was not just about admiring the scenery; it was also a journey of self-challenge and growth.
-
-The unpredictable climate of Xinjiang caught me off guard. The sharp contrast between the cold mornings and scorching afternoons made me aware that true travel is not just about visual enjoyment but also about mental resilience. Each day’s temperature fluctuations pushed me to reassess my adaptability and problem-solving abilities.
-
-One of the most unforgettable moments was when I got separated from my tour group at the International Grand Bazaar in Urumqi. I was so absorbed in the vibrant array of handmade crafts that I lost track of time and eventually lost sight of the group. The unfamiliar environment and language barriers left me feeling helpless and panicked, but I forced myself to stay calm. By seeking help from locals, I was eventually able to rejoin the group. This experience taught me that staying calm and being proactive are the best ways to handle unexpected situations.
-
-Additionally, sharing a room with my travel companion posed another challenge. His loud snoring kept me awake every night, making it difficult to rest. This experience made me realize the importance of learning to adapt to one’s environment and coexisting with others while traveling. After a few sleepless nights, I tried different methods and eventually found ways to get some rest.
 
 In Karamay, I missed a flight, which gave me a profound understanding of the uncertainties in travel and the importance of being prepared for the unexpected. Despite the challenges, this trip taught me how to find solutions in difficult situations and grow from them.
 
