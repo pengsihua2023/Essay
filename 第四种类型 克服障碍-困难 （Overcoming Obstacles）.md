@@ -210,3 +210,31 @@ The final day in Karamay presented the biggest challenge of the trip. We were pr
 This journey to Xinjiang taught me a lot. Facing the changing climate, I learned how to adjust my pace; in adapting to the food, I learned to embrace and accept different cultures; and through the experiences of getting separated from the group and missing the flight, I learned to remain calm in the face of unexpected situations and to seek solutions in times of difficulty. This trip not only enriched my experiences but also made me realize the importance of adaptability and resilience when facing the unknown and challenging situations.
 
 Looking back on this journey, what stays with me is not just the magnificent landscapes and rich culture of Xinjiang, but more importantly, how I became stronger and more mature through this journey. Each challenge and hardship revealed more of my potential and capabilities. In future travels, no matter what difficulties I may face, I will approach them with a more open and determined mindset.  
+## 习作二
+### 题目：在新疆的成长与自我发现
+
+新疆，这片辽阔而神秘的土地，以其独特的自然风光和多样的文化魅力吸引着我。然而，当我踏上这片土地时，才意识到这次旅程不仅是对风景的欣赏，更是一次自我挑战与成长的历程。
+
+新疆的气候变化让我措手不及。早晨的寒冷和中午的炽热形成了强烈的对比，这种温差让我意识到，真正的旅行不仅是眼睛的享受，更是心灵的磨砺。每一天的气候变化，都让我重新审视自己的适应能力和应变能力。
+
+旅程中最让我难忘的是一次与旅游团失散的经历。在乌鲁木齐的国际大巴扎，我沉浸在琳琅满目的手工艺品中，却不知不觉与团队失去了联系。陌生的环境和语言障碍让我一度感到无助和恐慌，但我努力镇定下来，通过向当地人寻求帮助，最终找回了团队。这次经历让我明白，冷静与主动应对是面对突发状况时最有效的解决之道。
+
+此外，与旅伴的同住也成了一大挑战。他响亮的鼾声让我每晚难以入睡，这让我意识到，在旅途中学会与环境和他人相处同样重要。经过几天的挣扎，我尝试了各种方法，最终找到了一些让自己休息的方法。
+
+在克拉玛依，我错过了航班。这让我深刻体会到旅行中的不确定性，以及应对意外的必要性。尽管这次旅行充满挑战，但它让我学会了如何在困境中寻找解决办法，并从中成长。
+
+回顾这次新疆之行，我不仅欣赏到了美丽的风景，更在旅途中经历了深刻的自我发现。每一次的挑战和困境，都让我变得更加坚韧和自信。无论未来的旅程多么艰难，我都将以更加开放的心态迎接每一个新的挑战。
+
+### Title: Growth and Self-Discovery in Xinjiang
+
+Xinjiang, with its vast landscapes and rich cultural heritage, had always captivated me. However, when I finally set foot on this land, I realized that this journey was not just about admiring the scenery; it was also a journey of self-challenge and growth.
+
+The unpredictable climate of Xinjiang caught me off guard. The sharp contrast between the cold mornings and scorching afternoons made me aware that true travel is not just about visual enjoyment but also about mental resilience. Each day’s temperature fluctuations pushed me to reassess my adaptability and problem-solving abilities.
+
+One of the most unforgettable moments was when I got separated from my tour group at the International Grand Bazaar in Urumqi. I was so absorbed in the vibrant array of handmade crafts that I lost track of time and eventually lost sight of the group. The unfamiliar environment and language barriers left me feeling helpless and panicked, but I forced myself to stay calm. By seeking help from locals, I was eventually able to rejoin the group. This experience taught me that staying calm and being proactive are the best ways to handle unexpected situations.
+
+Additionally, sharing a room with my travel companion posed another challenge. His loud snoring kept me awake every night, making it difficult to rest. This experience made me realize the importance of learning to adapt to one’s environment and coexisting with others while traveling. After a few sleepless nights, I tried different methods and eventually found ways to get some rest.
+
+In Karamay, I missed a flight, which gave me a profound understanding of the uncertainties in travel and the importance of being prepared for the unexpected. Despite the challenges, this trip taught me how to find solutions in difficult situations and grow from them.
+
+Reflecting on my journey to Xinjiang, I not only admired the stunning landscapes but also experienced deep self-discovery. Each challenge and obstacle made me stronger and more confident. No matter how difficult future journeys may be, I will approach them with a more open and resilient mindset, ready to face each new challenge.
