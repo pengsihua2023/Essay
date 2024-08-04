@@ -178,7 +178,7 @@ Angela写了一篇勇敢的文章，讲述了她与饮食失调的个人斗争�
 ——克莱尔·李
 
 ## 习作
-题目：在新疆的挑战与成长
+### 题目：在新疆的挑战与成长
 
 我从未想到，在中国新疆的旅行会如此深刻地影响我。这个广袤而神秘的地方，以其独特的地理环境和文化风情吸引着我。然而，旅途中的种种挑战也让我深刻地认识到自己应对困境的能力。
 
@@ -193,7 +193,8 @@ Angela写了一篇勇敢的文章，讲述了她与饮食失调的个人斗争�
 这次新疆之行让我学到了很多。面对气候的变化，我学会了如何调整自己的节奏；在适应饮食的过程中，我学会了包容和接受不同的文化；而在与团队失散和错过航班的经历中，我学会了冷静处理突发状况，并在困境中寻求解决办法。这次旅行不仅丰富了我的阅历，也让我明白了在面对未知和挑战时，适应力和应变能力是多么的重要。
 
 回顾这段旅程，我不再只是记得新疆壮丽的风景和丰富的文化，更重要的是，我认识到自己在这段旅程中变得更加坚强和成熟。每一次挑战和困境，都让我更加清楚地认识到自己的潜力和能力。在未来的旅途中，无论面对怎样的困难，我都将以更加开放和坚毅的心态去迎接。
-**Title: Challenges and Growth in Xinjiang**
+
+### Title: Challenges and Growth in Xinjiang
 
 I never expected that my trip to Xinjiang, China, would have such a profound impact on me. This vast and mysterious region, with its unique geography and cultural charm, fascinated me. However, the challenges I encountered during the journey also made me deeply aware of my ability to cope with difficulties.
 
