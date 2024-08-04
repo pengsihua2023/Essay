@@ -6,11 +6,9 @@ Growing up in rural China, stuff like this is way too common, due to parents hav
 
 Despite the odds stacked against me, I refused to succumb to despair. Instead, I channeled my experiences into my studies, using them as fuel to propel me forward. From a young age, education became our sanctuary, our beacon of hope. The motivation was clear — to excel, to receive a higher education, to find a sense of purpose in life. In the face of adversity, I clung to my dreams like a lifeline. In the classroom, I found solace and purpose, I embraced the challenge, immersing myself in books and knowledge. My parents had also prioritized my education, doing whatever they can to ensure my success in and out of school.
 
-After arriving in America, everything felt surreal to me, the cityscape and cacophony of ...
+After arriving in America, everything felt surreal to me, the cityscape and cacophony of languages were overwhelming, it's what my mates back home would never dream of. I felt blessed to have this opportunity, which fueled my determination. The initial days were daunting navigating a new culture and educational system, but I was undeterred. My passion for learning became my allies as I embraced this new chapter in my life.
 
-"After arriving in America, everything felt surreal to me, the cityscape and cacophony of languages were overwhelming, it's what my mates back home would never dream of. I felt blessed to have this opportunity, which fueled my determination. The initial days were daunting navigating a new culture and educational system, but I was undeterred. My passion for learning became my allies as I embraced this new chapter in my life.
-
-As I stand on the threshold of higher education, I carry not just the past but also the strength learned from those experiences. My voice, once muted by circumstance, now resonates with determination and purpose. Armed with the beauty of varied elements of voice, I am prepared to write a future that defies the odds, a future where education is not just a means of escape but a tool to bring change, not just for me but for my community and beyond."
+As I stand on the threshold of higher education, I carry not just the past but also the strength learned from those experiences. My voice, once muted by circumstance, now resonates with determination and purpose. Armed with the beauty of varied elements of voice, I am prepared to write a future that defies the odds, a future where education is not just a means of escape but a tool to bring change, not just for me but for my community and beyond.
 
 “嘿，你们要去哪儿？好久没交保护费了吧？”在道路旁的巷子里，污水横流，有人对着我和我的同伴们大喊，我们刚从一家网吧回家。我回过头，看到一群高中生，都是青少年，手臂上有纹身，有的手里握着刀。他们为了维护自己的名声，我紧张地吞了口唾沫，不情愿地交出了我本打算用来买晚餐的10美元。
 
